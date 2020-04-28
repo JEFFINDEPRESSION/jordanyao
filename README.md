@@ -1,2 +1,0 @@
-# jordanyao
-Assessment 1
